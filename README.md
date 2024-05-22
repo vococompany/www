@@ -1,4 +1,4 @@
-![10](https://github.com/vococompany/www/assets/5669657/e88f1bf5-5b7a-4d37-b4d5-bc39e975f3e8)
+![8](https://github.com/vococompany/www/assets/5669657/8ea9fc58-da44-41c1-9fe2-68f8ddaa9f0e)
 
 
 # [voice-controlled company - vococompany.com](http://www.vococompany.com)
