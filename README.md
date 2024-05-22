@@ -1,3 +1,6 @@
+![10](https://github.com/vococompany/www/assets/5669657/e88f1bf5-5b7a-4d37-b4d5-bc39e975f3e8)
+
+
 # [voice-controlled company - vococompany.com](http://www.vococompany.com)
 
 
@@ -32,4 +35,7 @@
 Każda oferta może być dostosowana do indywidualnych potrzeb i wymagań Twojej firmy. 
 
 Zapraszamy do kontaktu w celu omówienia szczegółów i wyboru najlepszego rozwiązania. 🎙️💼
+
+![Screenshot from 2024-05-22 10-31-19](https://github.com/vococompany/www/assets/5669657/4677aa3b-2341-4f36-acb7-b787f75a0391)
+
 
